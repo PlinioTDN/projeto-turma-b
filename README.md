@@ -2,6 +2,6 @@
 
 ---
 
-Experiência:
+Endereço: XXXXXXXXX - Marília - SP
 
-Analista Júnior de BI
+---
