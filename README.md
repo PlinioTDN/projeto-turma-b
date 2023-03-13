@@ -2,6 +2,7 @@
 
 ---
 
-Endereço: XXXXXXXXX - Marília - SP
+CPF: XXX.XXX.XXX-XX
+RG: XX.XXX.XXX-X
 
 ---
