@@ -8,7 +8,7 @@ RG: XX.XXX.XXX-X
 
 ---
 
-Experiência: Analista Júnior de BI
+Experiência: Analista Júnior de B.I.
 
 ---
 
