@@ -16,7 +16,7 @@ Estagiário de B.I | 10/01/2020 até 14/03/2020
 
 ---
 
-Endereço: XXXXXXXXXXXXXXX - Marília - SP
+Endereço: Avenida Brigadeiro Eduardo Gomes - 4800 - Casa 65 | Marília - SP
 
 
 
